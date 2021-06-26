@@ -1,7 +1,5 @@
 # D_123190089_ResponsiSCPK_SAW
 
-Lisa Anis Safitri
-
-123190089
+Lisa Anis Safitri / 123190089
 
 SCPK PLUG D
